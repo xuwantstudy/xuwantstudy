@@ -2,9 +2,8 @@
 - 👀 I’m interested in c python and how the internet work 
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on none thing
-- 📫 How to reach me QQ 24748746 wechat 113410153121
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- I'm Mr.Fujiwara no！I am currently writing eratw content of Ran Yakumon sama! Here are some historical versions for reference, and the final product will be sent here.
+- Chinese，conservatives，love Japan history.Touhou player.
 
 <!---
 xuwantstudy/xuwantstudy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
